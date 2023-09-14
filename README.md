@@ -1,6 +1,8 @@
-# log-cabin-garden
+# Review for log cabins from Johnsons Gardens (Polhill)
 
-This page is created to leave a review for Johnsons Cabin and to share my opinion. 
+This page is created to leave a review for Johnsons Gardens Cabin and to share my opinion. 
+
+We had a Garden Cabin installed by Johnsons (Denver, 5x4m). Here is our honest review along with some pictures.
 
 Window Frame Scratch: Today, after the finish of the cabin and when I got home, I observed a scratch/dents on the window frame, likely caused by the unbalanced main door that tends to swing towards the door when opened. Based on the dents, I believe the door was just left to slam against the frame during construction. Better workmanship would have balanced the door and prevented this issue. The technicial visiting at the end confirmed the dent as well.
 
